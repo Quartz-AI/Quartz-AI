@@ -1,0 +1,4 @@
+- Wassup I’m @Quartz-AI
+- I’m interested in lua/JS development
+- I’m currently learning JS
+- How to reach me RemiVRC@gmail.com
